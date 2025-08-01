@@ -1,2 +1,2 @@
 # StarsofSTR
-chicken dum biriyani
+Sumeet Shelake
